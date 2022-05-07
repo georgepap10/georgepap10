@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @georgepap10
+- 👀 I’m interested in video games,anime and manga
+- 🌱 I’m currently learning japanese
+- 💞️ I’m looking to collaborate on nothing so far 
+- 📫 How to reach me George.Anime#5978
